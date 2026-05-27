@@ -1,3 +1,5 @@
+<img src="https://i.imgur.com/ugxZ6ez.png" width="130" align="left">
+
 # KP Production Archive
 > ### [SYSTEM LOG] IDENTIFYING NEURAL SIGNATURE...
 > **ACCESS GRANTED.** 
