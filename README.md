@@ -1,4 +1,4 @@
-<img src="https://i.imgur.com/ugxZ6ez.png" width="100" align="left">
+<img src="https://i.imgur.com/ugxZ6ez.png" width="90" align="left">
 
 # KP Document Archive
 > ### [SYSTEM LOG] IDENTIFYING NEURAL SIGNATURE...
