@@ -4,7 +4,7 @@
 > ### [SYSTEM LOG] IDENTIFYING NEURAL SIGNATURE...
 > **ACCESS GRANTED.**
 > 
-> Welcome, Auditor. You have entered the **KeyPOWER Production Central Intelligence Archive**.
+> Welcome, Auditor. You have entered the **KeyPOWER Production Central Intelligence Archive**. It is highly requested use **light mode** to view our archive and wiki. 
 >
 > You are currently viewing the proprietary blueprints and strategic assets of the KP Collective. Be advised: informational leakage is a Tier-3 offense. All thought-patterns within this domain are subject to entropy-siphoning and strategic liquidation.
 
