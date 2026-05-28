@@ -22,7 +22,7 @@ By decades, KeyPOWER doesn't just compete; we collaborate with world powers as a
 
 With the resources of entire nations at our disposal, we have claimed dominion over the skies. Our engineers have developed a revolutionary reactor—a critical milestone in our ascent toward becoming a Type-III Civilization. This technology grants us energy capabilities previously thought impossible, ensuring that while our rivals may be many, we remain perpetually three steps ahead.
 
-## Plan for the Future
+## Our Reach
 
 The horizon of our ambition has moved far beyond Earth. With constellations, star systems, and entire galaxies now within our grasp, KeyPOWER has achieved total autonomy, relying exclusively on the resources of our colonized planets and severing all ties to the aid of other nations. We are no longer merely a company; we have become the architects of the future universe. 
 
