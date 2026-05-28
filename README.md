@@ -18,7 +18,7 @@ During the 2030–2035 ██████ national crisis, we established two co
 
 Building on this momentum, we placing the nation’s entire economic infrastructure under our direct control. By centralizing amd stabilizing the nation's economy after the crisis, we have not only doubled our founding profits but have also gained the leverage needed to persuade other nations to fund our project and collaboration auch as technology sharing. 
 
-By a few year, KeyPOWER doesn't just compete; we convinced world powers by political agreement and offer to cdo a periods of collaboration with us, expanding our influence through a web of high-level international partnerships.
+By a few year, KeyPOWER doesn't just compete; we convinced world powers by political agreement and offer to do a periods of collaboration with us, expanding our influence through a web of high-level international partnerships.
 
 By decade, with the resources of entire nations at our disposal, we have claimed dominion over the skies. Our engineers have developed a revolutionary reactor—a critical milestone in our ascent toward becoming a Type-III Civilization. This technology grants us energy capabilities previously thought impossible, ensuring that while our rivals may be many, we remain perpetually three steps ahead.
 
