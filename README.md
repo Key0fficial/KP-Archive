@@ -1,3 +1,4 @@
+[![Ask DeepWiki](https://deepwiki.com/badge.svg)](https://deepwiki.com/Key0fficial/KP-Archive)
 <img src="https://i.imgur.com/ugxZ6ez.png" width="90" align="left">
 
 # KP Document Archive
