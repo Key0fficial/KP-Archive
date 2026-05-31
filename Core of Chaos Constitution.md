@@ -25,24 +25,6 @@ The very name of the Chaos Core Constitution signifies the branch's role as the 
 
 One year after its establishment, following issues regarding upkeep and the branch's purpose, KeyPOWER’s high-ranking officials held several meetings in 2021. They discussed creating a dedicated internal hierarchy for the C.C.C. so that KeyPOWER would not be overwhelmed managing a military branch while their primary focus remained on researching technology and weaponry. An agreement soon was reached to base the C.C.C. hierarchy on standard military ranks, with **Seigneur de l'Intérieur** as the supreme position.
 
-
-## — Influence
-
-The CCC wields over geopolitical influence and plays a significant role in Europe. As a group that is dedicated to maintaining peace, they refused to cooperate in the takeover of the French government during the French Crisis of 2030. They then accepted KeyPOWER's offer to take over the French military and the building of base around the earth, along with KeyPOWER's second military branch, the Forces Imperiales de l'Intérieur. They accepted the offer and recruited more men to train and assign them to regiments based on their specialization after rigorous harsh training.
-
-Beyond military, C.C.C. also dabbled in politics. The Seigneur de l'Intérieur, the Supreme Leader of the C.C.C., believed that politics was the only way to convince nations not to go to war. He believed that by demonstrating the CCC's capabilities and then negotiating, events such as Nuclear War, World War III, and the apocalypse could be prevented.
-
-C.C.C. Influence spans to the entire universe. Operating from a vast network of space stations scattered across galaxies and constellations, they utilize advanced telescope arrays to monitor for potential chaos or anomalies requiring containment or destruction. Their surveillance extends beyond human history to include the observation of extraterrestrial life, every stars death, the Cosmic Web Background, and the Cosmic Microwave Background.
-
-## — Capabillity
-
-As mentioned before, The Core of Chaos Constitution (C.C.C.) operates as a intergalactic security in almost everything from *"localized civil assistance to the mitigation of supernova-level existential threats**. They're commanded by the 21 Maréchal and the others high-ranking officers that is a genius in both tactics and strategy, even rivaled historical figure such as General Douglas MacArthur. 
-
-C.C.C. greatest achievment was neutralizing high-threat cosmic entities through proprietary of KeyPOWER weaponry. But there is always an anomaly that is comppetely indestructable or immortal. C.C.C. respond to this kind of threat was to contain it. The containment is centered at a space station penitentiary called **The Tesserom of Firmaments**, a maximum-security deep-space penitentiary stationed right in the center of milky way in a stable orbit around the Sagittarius A* supermassive black hole.
-
-Originally, it was proposed by a visionary Chief of Battalion who recognized the necessity of neutralizing indestructible threats, the Tesserom serves as a final vault for safe to world-ending immortal anomalies. Within its walls, these entities are subjected to eternal containment and torture, ensuring that even the most dangerous forces in the universe—including force of nature—are brought under KeyPOWER's absolute control to maintain tranquility the C.C.C. wanted.
-
-
 ## — C.C.C. Regiments
 
 
