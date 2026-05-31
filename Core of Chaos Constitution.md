@@ -9,8 +9,6 @@
 >
 > You are currently viewing the history of Core of Chaos Constitution on public's eye. This file is made from existing articles made by KP Production. 
 
-<img src="https://i.imgur.com/ugxZ6ez.png" width="90" align="left">
-
 # Core of Chaos Constitution
 
 **Core of Chaos Constitution** was founded in 2020 ahead of the 2030 French Crisis, they are the first military branch of KeyPOWER's. The agency was established following a supernatural encounter experienced by "Thy Doctor" during his 2019 expedition into the Almanac Forests.
