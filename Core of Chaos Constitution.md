@@ -1,5 +1,6 @@
 [![Ask DeepWiki](https://deepwiki.com/badge.svg)](https://deepwiki.com/Key0fficial/KP-Archive)
-<img src="https://i.imgur.com/ugxZ6ez.png" width="90" align="left">
+<img src="https://github.com/user-attachments/assets/1cfd9f6c-c10a-4d19-857d-81cce89f4905" width="90" align="left">
+
 
 # KP Document Archive
 > ### [SYSTEM LOG] IDENTIFYING NEURAL SIGNATURE...
