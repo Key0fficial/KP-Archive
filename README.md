@@ -25,7 +25,7 @@ By decades, with the resources of entire nations at our disposal, we have claime
 
 ## Our Reach
 
-The horizon of our ambition has moved far beyond Earth. With constellations, star systems, and entire galaxies now within our grasp, KP has achieved total autonomy, relying exclusively on the resources of our colonized planets and severing all ties to the aid of other nations. We are no longer merely a company; we have become the architects of the future universe. 
+The horizon of our ambition has moved far beyond Earth after decades of expedition alongside AN. With constellations, star systems, and entire galaxies now within our grasp, KP has achieved total autonomy, relying exclusively on the resources of our colonized planets and severing all ties to the aid of other nations. We are no longer merely a company; we have become the architects of the future universe. 
 
 As we ascend, we continue to revolutionize the cosmic order by developing biological cloning as a primary source of manpower for our military branches, leveraging quantum physics to engineer unparalleled weaponry, build multiple space-shipyards, and manifesting exotic, unknown materials harvested from the deepest reaches of the universe.
 
