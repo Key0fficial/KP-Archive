@@ -7,6 +7,6 @@
 > 
 > Welcome, Auditor. You have entered the **KeyPrémiere Production Central Intelligence Archive**. It is highly requested use **light mode** to view our archive and wiki. 
 >
-> You are currently viewing the official document archive of KP. This documents doesn't include a blueprint of a reactor or anything more specific with how the reactor works to avoid being stolen by other hostile groups. 
+> You are currently viewing the official document archive of KP. This documents doesn't include a blueprint of a reactor or anything more specific with how the reactor works to avoid being stolen by other hostile groups. All thought-patterns within this domain are subject to entropy-siphoning and strategic liquidation.
 
 <img src="https://github.com/user-attachments/assets/15e74e40-5fe1-4bc0-a3b2-de7643e62c8d" width="500" align="center">
